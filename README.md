@@ -37,8 +37,7 @@ Currently, I'm taking a course in **data analysis** and diving deeper into:
 
 ## 💬 Let's Connect!
 - [LinkedIn](https://www.linkedin.com/) 🔗
-- [Twitter](https://twitter.com/) 🐦
-- [Email Me](mailto:youremail@example.com) 📧
+- [Email Me](reham.nabill@outlook.com) 📧
 
 ---
 
